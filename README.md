@@ -1,2 +1,2 @@
-~interested in cybersec, physics and hardware
+ce & cs
 
